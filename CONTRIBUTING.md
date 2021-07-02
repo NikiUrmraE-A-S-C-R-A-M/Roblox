@@ -1,3 +1,3 @@
 # ROBLOX DOWNLOOADS 
-Roblox CAN BE download from  steam and https://roblox.en.softonic.com/
+Roblox CAN BE download from  https://roblox.en.softonic.com/
 USE THE SOURCES
